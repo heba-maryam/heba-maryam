@@ -3,7 +3,7 @@
 
 <img align="right" alt="" width="400" src="https://i.pinimg.com/564x/c1/f4/5f/c1f45f1978fc7ad515497a5c64605d7f.jpg">
 
-- 📄 Know about my experiences http://tinyurl.com/HebaMaryam7.
+- 📄 Know about my experiences http://tinyurl.com/HebaMaryam1.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
